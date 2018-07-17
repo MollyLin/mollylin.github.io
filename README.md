@@ -1,2 +1,0 @@
-# mollylin.github.io
-Resume
